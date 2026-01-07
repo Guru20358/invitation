@@ -1,2 +1,2 @@
 # invitation
-for you
+FOR MY GURL
